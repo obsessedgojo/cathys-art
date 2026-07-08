@@ -6,6 +6,6 @@
 
 ![](https://file.garden/aZ_gi8BVVxQ1YK9c/Tak%20berjudul185_20260703225556.png) 
 
-all of thsse r just shigadabi bro
+![](https://file.garden/aZ_gi8BVVxQ1YK9c/Tak%20berjudul192_20260708170522.png) 
 
-shig needs that cookie /jkjk no suggestive meaning i swear
+this was for surf (she BETTER love it.) 
