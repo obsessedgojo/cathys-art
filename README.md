@@ -9,3 +9,5 @@
 ![](https://file.garden/aZ_gi8BVVxQ1YK9c/Tak%20berjudul192_20260708170522.png) 
 
 this was for surf (she BETTER love it.) 
+
+![](https://file.garden/aZ_gi8BVVxQ1YK9c/Tak%20berjudul193_20260709144147.png)
