@@ -28,3 +28,5 @@ guys look shigadabi but janka ver
 uhhh these two drawings are just old vents (i find it funny idk why) 
 
 ![](https://file.garden/aZ_gi8BVVxQ1YK9c/Tak%20berjudul208.png) 
+
+![](https://file.garden/aZ_gi8BVVxQ1YK9c/Tak%20berjudul212_20260801102815.png) 
