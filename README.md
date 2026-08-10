@@ -21,12 +21,18 @@ this was for surf (she BETTER love it.)
 
 guys look shigadabi but janka ver
 
-![](https://file.garden/aZ_gi8BVVxQ1YK9c/Tak%20berjudul211_20260730213900.png) 
-
-![](https://file.garden/aZ_gi8BVVxQ1YK9c/Tak%20berjudul211_20260730213855.png) 
-
-uhhh these two drawings are just old vents (i find it funny idk why) 
-
 ![](https://file.garden/aZ_gi8BVVxQ1YK9c/Tak%20berjudul208.png) 
 
 ![](https://file.garden/aZ_gi8BVVxQ1YK9c/Tak%20berjudul212_20260801102815.png) 
+
+my art style freaking changed
+
+ㅤ
+
+# guys who wants more janka shigadabi
+
+everyone: me me me!! us!!! we want more!!! 
+
+*mika and olive leaves* (honorable mention for them) 
+
+# ok... 
