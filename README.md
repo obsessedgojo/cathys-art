@@ -27,7 +27,9 @@ guys look shigadabi but janka ver
 
 my art style freaking changed
 
-ㅤ
+![](https://file.garden/aZ_gi8BVVxQ1YK9c/Tak%20berjudul226_20260812173116.png) 
+
+#vent hmmm ignore this i added it bc it's a drawing
 
 # guys who wants more janka shigadabi
 
